@@ -231,4 +231,4 @@ Pillars of Eternity is available as a complete free version with all features an
 Embark on your epic adventure today! Download Pillars of Eternity for free and experience the magic of this unforgettable RPG.
 
 ---
-**Last updated:** 2026-09-21 04:36:21 UTC
+**Last updated:** 2026-09-21 10:28:37 UTC
